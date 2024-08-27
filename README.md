@@ -1,1 +1,1 @@
-![dario-dario-moccia](https://github.com/user-attachments/assets/f52f968f-2aca-4c3f-a905-d68b64f0169e)
+<img align="center" src=https://tenor.com/it/view/dario-dario-moccia-dario-moccia-pensa-dario-moccia-gay-gif-23253806 /></p>
